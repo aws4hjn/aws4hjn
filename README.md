@@ -28,7 +28,7 @@
 ---
 
 ### 📫 Connect with Me  
-- LinkedIn — *Add your link here after customizing*  
+- LinkedIn — *www.linkedin.com/in/nagesh-achar-1a8a8915b*  
 - Email — **nagesh2go@gmail.com**  
 
 ---
